@@ -19,4 +19,4 @@
  </table>
 
 
- Images from TD BANK https://www.td.com/us/en/personal-banking/
+ Images copyright from TD BANK https://www.td.com/us/en/personal-banking/
